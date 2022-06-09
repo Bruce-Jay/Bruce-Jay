@@ -1,5 +1,5 @@
 ### It seems that you've come to a desert without any knowledge, and the universe is crazy.😋
-Hopefully you'll devote yourself into being industrious, and maybe it's better to should with 100 kilos of wheat and walk for 5 km winding path without changing the shoulder.🤗
+Hopefully you'll devote yourself into being industrious, and maybe it's better to shoulder with 100 kilos of wheat and walk for 5 km winding path without changing the shoulder.🤗
 
 <!--
 **Bruce-Jay/Bruce-Jay** is a ✨ _special_ ✨ repository because its `README.md` (this file) appears on your GitHub profile.
