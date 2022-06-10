@@ -1,5 +1,6 @@
 ### It seems that you've come to a desert without any knowledge, and the universe is crazy.😋
 Hopefully I'll devote myself into being industrious, and maybe it's better to be shouldered with 100 kilos of wheat and walk for 5 km winding path without shoulder-changing.🤗
+Stay hungry, stay foolish. Stay young, stay simple, stay naive.
 
 <!--
 **Bruce-Jay/Bruce-Jay** is a ✨ _special_ ✨ repository because its `README.md` (this file) appears on your GitHub profile.
